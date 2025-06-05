@@ -1,4 +1,4 @@
-## Hi there! 👋 I'm Katleho Johanne  
+👋 I'm Katleho Johanne  
 
 ### 💻 Aspiring Software Engineer | IT Diploma Student | Belgium Campus  
 
